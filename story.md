@@ -10,4 +10,7 @@ He might have lived in a tranquil cavern in the side of a mountain with a name w
 There was also a wizard.
 There was definitely a wizard.
 
+This wizard spent a lot of his time contemplating the possible existence of a hypothetical dwarf, who may or may not have existed.
+
+
 __Fork and continue the story!__
