@@ -1,6 +1,9 @@
 A long time ago, in a land far, far away... before death, before time...
 ===
 
+Epilogue
+---
+
 There was a bow-legged dwarf named Ralph.
 
 Or there wasn't.
@@ -11,6 +14,9 @@ There was also a wizard.
 There was definitely a wizard.
 
 This wizard spent a lot of his time contemplating the possible existence of a hypothetical dwarf, who may or may not have existed.  Sometimes he just complained about unit testing.
+
+Chapter 1
+---
 
 KABOOM! Smoke filled the room. 
 
