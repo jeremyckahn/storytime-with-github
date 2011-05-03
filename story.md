@@ -12,5 +12,11 @@ There was definitely a wizard.
 
 This wizard spent a lot of his time contemplating the possible existence of a hypothetical dwarf, who may or may not have existed.  Sometimes he just complained about unit testing.
 
+KABOOM! Smoke filled the room. 
+
+"Success?" questioned the wizard. 
+A cough from across the room. "Hello?" said a small, confused voice, "who... am... is... what? O-M-G!"
+The dwarf lives.
+
 
 __Fork and continue the story!__
