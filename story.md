@@ -24,5 +24,18 @@ KABOOM! Smoke filled the room.
 A cough from across the room. "Hello?" said a small, confused voice, "who... am... is... what? O-M-G!"
 The dwarf lives.
 
+The wizard had achieved his life long goal -  to create life!  Granted, the wizard had no social contact due to the seclusion of his lair carved into the side of a mountain, so he used what was available to him to forge the living being.  Specifically, Ralph was alchemized from from rocks, a rusty ladle, leftover dumpings, a pinecone, and a goat.
+
+Stranger things have happened.
+
+"Ralph," proclaimed the wizard.  "Your name is Ralph."
+
+"I... hunger..." said the bow-legged Ralph.
+
+"What can I get you, my child?" Asked the wizard in a comforting, fatherly tone.
+
+"I want... BRAINS!!!"
+
+And with that, Ralph scuttled out of the lair and toward the quiet village of _Viessay_, near the foothills of the mountain in which the wizard resided.
 
 __Fork and continue the story!__
