@@ -38,6 +38,9 @@ Stranger things have happened.
 
 And with that, Ralph scuttled out of the lair and toward the quiet village of _Viessay_, near the foothills of the mountain in which the wizard resided.
 
+Chapter 2
+---
+
 The wizard lived in the back of a storefront. His one room apartment smelt of foot fungus and corn chips. The store in front was the family business which he had inherited from his father. "Son, one day this ostemy supplies store will be yours. You will have the power and responsibility of helping those who can no longer help themselves." The business was good. Many came from far and wide to purchase and marvel at the huge selection of colostomy bags and adult diapers.
 
 __Fork and continue the story!__
